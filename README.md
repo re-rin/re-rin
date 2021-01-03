@@ -1,4 +1,4 @@
-### Hi there 👋
+### explain my position 👋
 
 <!--
 **re-rin/re-rin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
